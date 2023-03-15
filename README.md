@@ -1,1 +1,2 @@
-# Non-Profit-Organization
+# Non-Profit Organization
+Non-profit organizations focus on larger, more organized activities in the social, political, environmental, or economic spectrum. The organizations may also be formed to promote religious, cultural, or educational objectives. Examples of such organizations include UNICEF and the American Red Cross. A [non profit organization](http://charityappnow.com/) is a group organized for purposes other than generating profit and in which no part of the organization's income is distributed to its members, directors, or officers.
